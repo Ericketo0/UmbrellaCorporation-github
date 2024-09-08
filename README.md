@@ -1,4 +1,4 @@
-### **Bem-vindo ao Laboratório Secreto da Umbrella Corporation!** ☣️
+### **Bem-vindo ao Laboratório Secreto da Umbrella Corporation!** ☣️  Imersão Dev com Google Gemini
 
 **O que é isso aqui?**
 
